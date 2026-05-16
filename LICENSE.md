@@ -1,4 +1,4 @@
-# 
+# Enhance OBS Studio for PC | OBS Studio for Windows with OBS Studio for PC | OBS Studio for Windows best Script: video-encoding & screen-capture, the #1 script. Includes
 
 
 
